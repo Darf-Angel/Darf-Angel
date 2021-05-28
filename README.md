@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Darf-Angel
+- 👀 I’m interested in bots, bot configuration and etc.
+- 🌱 I’m currently learning to configure all kinds of bots and / or sites
+- 💞️ I’m looking to collaborate on...
+- 📫 How to reach me @darfangel11@gmail.com
